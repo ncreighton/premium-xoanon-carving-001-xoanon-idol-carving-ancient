@@ -1,0 +1,2 @@
+# premium-xoanon-carving-001-xoanon-idol-carving-ancient
+Struggling to find authentic, historically-accurate references for your xoanon carvings? You're not alone—most resources are either too vague or packed with modern reinterpretations. That's why I created the Xoanon Idol Carving &amp; Ancient Greek Wood Art Hub: a single, focused place where ancient wood art meets practical carving guidance.  This hub s
